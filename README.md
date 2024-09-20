@@ -3,7 +3,7 @@
 <div align="center">
 <b><br>
 
-个人网站（加密）： [abrillantlee.top](https://unknown.top)<br>
+个人网站（加密）： [pete.top](https://unknown.top)<br>
 </div>
 <div align="center">
   <div>
